@@ -1,20 +1,2 @@
-/**
-*THE CODE OF LOVE
-Hi my love
-Do you remember the day we first met?
-syempre hindi ka na mansin pss hahaha
-As the time went on;
-crush mo na ako eme HAHAHAHA
-The Bond grew stronger and stronger;
-Journey from Infatuation to Love;
-We have traveled a long way together;
-There have been fights ;
-// And I'm sure there will be more.
-But our Bond will always grow back Stronger;
-
-
-All I want to say is:
-Baby, I will love you forever;
-
-
+![484400704_1354802389045866_5968580049767546866_n](https://github.com/user-attachments/assets/d5210ad1-7288-44e7-8bb1-f35c5da74b5b)
 ![download](https://github.com/user-attachments/assets/bb7558b6-6dc7-49fc-9596-10ea8dacbdc3)
